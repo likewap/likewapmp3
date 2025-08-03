@@ -1,7 +1,9 @@
-# likewapmp3
-# Visit Our Website
+## 🎵 LikeWap Music Links
 
-Check out our official site: [LikeWap.com](https://likewap.com)
-## 🎵 Pardesiya by Sonu Nigam
+### 🎧 Pardesiya by Sonu Nigam  
+Listen here: [Pardesiya - Sonu Nigam on LikeWap](https://likewap.com/music/pardesiya-sonu-nigam-krishnakali-saha)
 
-Listen to the song here: [Pardesiya - Sonu Nigam on LikeWap](https://likewap.com/music/pardesiya-sonu-nigam-krishnakali-saha)
+---
+
+### 🎬 Explore Bollywood Songs  
+Browse Bollywood music: [Bollywood Genre on LikeWap](https://likewap.com/genre/bollywood)
